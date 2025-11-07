@@ -1,1 +1,1 @@
-*Site is live on*->  https://reynascode.com
+*Site is live on*->  https://reynascodes.com
